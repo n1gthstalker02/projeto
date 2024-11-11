@@ -17,3 +17,15 @@ chaveiros
 ![images](https://github.com/user-attachments/assets/bff8d557-d042-43e4-8bef-39a5f1b8d1a6)
 ![Uploading download (10).jpeg…]()
 
+canecas
+
+![images (1)](https://github.com/user-attachments/assets/9c9104d4-63cf-469b-b2f7-3f9702a8deb9)
+![images (2)](https://github.com/user-attachments/assets/23cb3135-25d8-43b7-ad4d-ba3db7949318)
+![images (3)](https://github.com/user-attachments/assets/c1a155d3-5f40-4dce-8a2d-e84196af6639)
+
+tênis
+
+![download (11)](https://github.com/user-attachments/assets/7504b485-65a9-4787-9617-5aa0823842d2)
+![download (12)](https://github.com/user-attachments/assets/4d8b2688-dbf5-47d8-a62d-6b2297507211)
+![download (13)](https://github.com/user-attachments/assets/362fb010-3388-47ee-843e-0c480ac5a5a8)
+
