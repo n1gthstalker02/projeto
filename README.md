@@ -6,7 +6,7 @@ venha descobrir um novo mundo!
 camisetas
 ![download (6)](https://github.com/user-attachments/assets/cfc4e523-ef36-47d0-a3f9-c61231886561)
 ![cbjr](https://github.com/user-attachments/assets/f50b0de2-04c4-4415-b0c0-cc928e3d7176)
-![12 (1)](https://github.com/user-attachments/assets/27c68750-35c7-4668-871f-558705ff3e04)
+![images](https://github.com/user-attachments/assets/5b90babc-e363-4fbf-bca4-18c50271e1a4)
 
 
 chaveiros
