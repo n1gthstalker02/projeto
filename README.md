@@ -1,6 +1,7 @@
 # projeto
 Olá, bem vindos a nossa loja Brown's Boutique, aqui você pode encontrar diversas coisas temáticas do Chorão por um preço acessível.
 Vendemos camisetas, chaveiros, canecas, tênis, cd's, shapes, utensílhos, e muito mais. 
+venha descobrir um novo mundo!
 
  shapes
  ![chorao](https://github.com/user-attachments/assets/c8a9e055-2af0-47eb-814e-4297475e37f3)
