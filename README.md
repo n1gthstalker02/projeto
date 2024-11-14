@@ -14,8 +14,7 @@ cd's
 ![images (2)](https://github.com/user-attachments/assets/33527ba3-a77f-4524-9c0e-3b1b1f25def9)
 
 chaveiros
-![download (9)](https://github.com/user-attachments/assets/2c651214-d5a4-4aa6-bd6c-7141cf2d0519)
-![images](https://github.com/user-attachments/assets/bff8d557-d042-43e4-8bef-39a5f1b8d1a6)
+![download (1)](https://github.com/user-attachments/assets/f6f24af0-7549-4c15-bf29-61665af92ac2)
 
 
 canecas
