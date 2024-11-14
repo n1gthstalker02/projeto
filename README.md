@@ -8,6 +8,10 @@ camisetas
 ![cbjr](https://github.com/user-attachments/assets/f50b0de2-04c4-4415-b0c0-cc928e3d7176)
 ![images](https://github.com/user-attachments/assets/5b90babc-e363-4fbf-bca4-18c50271e1a4)
 
+cd's
+![download](https://github.com/user-attachments/assets/8dfea72d-015b-4c0a-914a-ba0050b248d5)
+![images (1)](https://github.com/user-attachments/assets/54186069-aa89-428a-9285-04751894b3a8)
+![images (2)](https://github.com/user-attachments/assets/33527ba3-a77f-4524-9c0e-3b1b1f25def9)
 
 chaveiros
 ![download (9)](https://github.com/user-attachments/assets/2c651214-d5a4-4aa6-bd6c-7141cf2d0519)
